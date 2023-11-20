@@ -1,1 +1,1 @@
-# Sygnaly i-obrazy-cyfrowe
+# Sygnały-i-obrazy-cyfrowe
